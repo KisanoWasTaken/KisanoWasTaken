@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @KisanoWasTaken
-- 👀 I’m interested in WAY too many things.
+- 👀 I’m interested in WAY too many things and learning too much.
 - 🌱 I’m currently learning Full Stack Development, Game Development, Music Theory and Art. Oh and 3D modelling and video editing.
 - 💞️ I’m looking to collaborate on: Nothing. Yet.
 - 📫 How to reach me: Not many options, but you can find me on NewGrounds
