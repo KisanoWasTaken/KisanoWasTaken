@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on: Nothing. Yet.
 - 📫 How to reach me: Not many options, but you can find me on NewGrounds
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: I'm quite a horror freak, so please suggest some good horror movies.
+- ⚡ Fun fact: I'm quite a horror freak, so please suggest some good horror movies. Also, I listen to jazz and hardcore (yes, they are complete polar opposites in music)
 
 Hello world!
 <!---
