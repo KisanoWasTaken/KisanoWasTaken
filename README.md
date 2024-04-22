@@ -2,7 +2,7 @@
 - 👀 I’m interested in WAY too many things and learning too much.
 - 🌱 I’m currently learning Full Stack Development, Game Development, Music Theory and Art. Oh and 3D modelling and video editing.
 - 💞️ I’m looking to collaborate on: Nothing. Yet.
-- 📫 How to reach me: Not many options, but you can find me on NewGrounds
+- 📫 How to reach me: Not many options, but you can find me on NewGrounds. i'm also on YouTube i guess...
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I'm quite a horror freak, so please suggest some good horror movies. Also, I listen to jazz and hardcore (yes, they are complete polar opposites in music)
 
