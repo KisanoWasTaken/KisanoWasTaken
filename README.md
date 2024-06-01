@@ -7,6 +7,7 @@
 - ⚡ Fun fact: I'm quite a horror freak, so please suggest some good horror movies. Also, I listen to jazz and hardcore (yes, they are complete polar opposites in music)
 
 Hello world!
+Just slowly fading into mental insanity here, don't mind me!
 <!---
 KisanoWasTaken/KisanoWasTaken is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
